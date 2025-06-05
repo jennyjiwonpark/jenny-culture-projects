@@ -14,12 +14,12 @@ Internal training to create a more inclusive, focused, and intentional meeting c
 DEI session hosted with KR celebrity and professor on visibility and identity.
 
 ### 🧘‍♀️ 3. Adaptive Yoga: Sit and Get Fit  
-Wellness initiative for employees with physical restrictions – gentle yet powerful.
+Wellness initiative for employees with physical restrictions – gentle yet powerful yoga instructor invited.
 
 ### 🎤 4. “A Miracle Doesn’t Come Like a Miracle”  
-A talk session with Kim Hee-sun and her daughter, a disability advocate.
+A talk session with Kim Hee-sun and her daughter, a disability advocate. A member of one of the first generation K-pop girl groups. Ms. Kim’s daughter, Dr. Chung Yoo-sun Ph.D, has cerebral palsy and is a disability advocate and associate professor in the Division of Special Education and disAbility Research at George Mason University. Ms. Kim will share some of her life stories and experiences in this session title  “A Miracle Doesn’t Come Like a Miracle.
 
 ### 🎨 5. Find Your Personal Color: Warm vs. Cool  
 [Session Plan](https://docs.google.com/document/d/1hBvWADXlDRH_tPvDGzfsnCT2gu2X_BPGwrNuBFXurKg/edit) | [Slides](https://www.canva.com/design/DAFtka5yb_E/4gm899S7AGATRDgq6HPLbQ/edit)
 
-An internal session on personal color to support confidence and expression.
+An internal session to invite everyone to belong on personal color to support confidence and expression.
